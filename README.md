@@ -1,1 +1,1 @@
-https://github.com/mirrabarteneva-afk/ono-tebe-nado
+https://github.com/mirrabarteneva-afk/ono-tebe-nado-ad
